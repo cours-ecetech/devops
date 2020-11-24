@@ -3,7 +3,7 @@
 ----
 
 ### Let's take a look into the past
-<img src="https://lh3.googleusercontent.com/proxy/JDn0YCs79OPY7Ei24zuUiiK1L8b6ee2O8jqs306hbJWLs9XGqftJXSRzfHoD7GGY6m1kxkOPBIB_-xF49bqICooSJSPiNJl6yi7uiPT4B1Wj1Vxz_Ti5UZSQYRYBL32-iDO7E6hl7Z_E" height="200" width="200" style="background:none; border:none; box-shadow:none;"/>
+<img src="https://www.rawshorts.com/freeicons/wp-content/uploads/2017/01/media-pict-rewind.png" height="200" width="200" style="background:none; border:none; box-shadow:none;"/>
 
 ----
 
